@@ -13,7 +13,7 @@ Software Engineering student with a growing interest in **AI tools and automatio
 🔗 [https://portfolio-umar-alpha.vercel.app/]
 
 ### Find me elsewhere
-- LinkedIn: [your LinkedIn URL]
-- Instagram: [your Instagram URL]
+- LinkedIn: [https://www.linkedin.com/in/umarawan001/]
+- Instagram: [https://www.instagram.com/umarsticxx_]
 
 ---
